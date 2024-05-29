@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SHRIEENIDHI-A-M
+- 👋 Hi, I’m @SHRIEENIDHI A M
 
 
 <!---
